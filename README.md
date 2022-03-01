@@ -1,4 +1,4 @@
 - 👋 Hi there
-- 👀 We hate war conflicts and prefer to think about sustainable development
-- 🌱 We believe that humans have made a long way to humanity and paid a huge price for it
+- 👀 We hate war conflicts and prefer to think about sustainable development.
+- 🌱 We believe that humans have made a long way to humanity and paid a huge price for it. Problems should be solved in a nonviolent way.
 - 📫 You can write to mailto:russiamakelovenotwar@gmail.com
